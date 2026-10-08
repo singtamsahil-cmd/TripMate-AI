@@ -1,1 +1,7 @@
 # TripMate-AI
+
+
+
+
+
+
